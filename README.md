@@ -1,1 +1,0 @@
-# SmartDAOGlobal.com
